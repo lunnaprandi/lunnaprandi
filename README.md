@@ -10,7 +10,7 @@ Tenho uma irma de 1 ano chamada lohana e uma irma mais velha por parte de pai qu
 
 Trabalho em uma espetaria em astorga que abre de segunda a sexta.
 
-Minha rotina é meio repetitiva mais não tenho nada que reclamar, vou para escola 7:30 saio da escola 12:45 chego em casa vou fazer serviços de casa, tomo banho e 17:00 vou trabalhar fico até as 23:00. e por ultimo o mais importante sou corinthiana!!!!!!!! timão né kakakaka.
+E por ultimo o mais importante sou corinthiana!!!!!!!! timão né kakakaka.
 
 **entre em contato comigo em** Prandi.luna@escola.pr.gov.br
 
